@@ -6,7 +6,7 @@ solution: convert the store locator lists into google my maps that I can view ri
 
 hurrah!
 
-<rant> google my maps UX still sucks, it's difficult to find, there's no way to easily browse/search user-generated maps other than those google has curated, you basically HAVE to have the share link or its useless. and then you'll be using a my map, switch to another app, come back to google maps and the map you were just viewing is gone. but still, it's the better than store locator maps </rant>
+`<rant>` google my maps UX still sucks, it's difficult to find, there's no way to easily browse/search user-generated maps other than those google has curated, you basically HAVE to have the share link or its useless. and then you'll be using a my map, switch to another app, come back to google maps and the map you were just viewing is gone. but still, it's the better than store locator maps `</rant>`
 
 ## converted my maps
 
