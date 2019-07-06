@@ -10,13 +10,13 @@ hurrah!
 
 ## converted my maps
 
-[Billion Oyster Project Member Coupon Participating Restaurants (NYC)] (https://drive.google.com/open?id=1VgnYLGEV0Ps-uxxrRreYCfWFMgAtck9R&usp=sharing)
+**[Billion Oyster Project Member Coupon Participating Restaurants (NYC)](https://drive.google.com/open?id=1VgnYLGEV0Ps-uxxrRreYCfWFMgAtck9R&usp=sharing)**
 * As a member of the Billion Oyster Project, you get 5 coupons for a half dozen oysters! ...And an email listing the restaurant locations.
 
-[Athletic Brewing Co Retail Locations (East Coast)] (https://drive.google.com/open?id=1y_7nsA-qVCTAjjGPUsc60L9TzbayjfH7&usp=sharing)
+**[Athletic Brewing Co Retail Locations (East Coast)](https://drive.google.com/open?id=1y_7nsA-qVCTAjjGPUsc60L9TzbayjfH7&usp=sharing)**
 * Non-alcoholic beer is all the rage, or will be in 5-10 years. Athletic Brewing is one of the few microbreweries with great non-alcoholic beer that tastes like an IPA but with 60-70 calories and .5% alcohol. You can drink these guys walking down the street folks!
 
-[Mother Dirt Retail Locations (US, Australia, UK)] (https://drive.google.com/open?id=1Yw6_oryDraPlj2KnzYkQ-dbmv755UYLj&usp=sharing)
+**[Mother Dirt Retail Locations (US, Australia, UK)](https://drive.google.com/open?id=1Yw6_oryDraPlj2KnzYkQ-dbmv755UYLj&usp=sharing)**
 * I started running/working out more in my 30s and deodorant just stopped working. Got tired of smelling myself so tried Mother Dirt. It actually works! Some people never shower and just use this stuff, that's gross to me but to each your own. I just don't want to smell.
 
 ## note
